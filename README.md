@@ -1,6 +1,6 @@
 # Jm-Drugs
 
-Download the resource today for free here or here https://ds-development.tebex.io/package/5964577
+For support Join our discord https://discord.gg/Twups7XjSk
 
 Description:
 
